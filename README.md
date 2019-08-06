@@ -1,1 +1,0 @@
-# bimatbatmi.github.io
